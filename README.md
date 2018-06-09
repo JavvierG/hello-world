@@ -3,4 +3,4 @@
 
 Hi friends !
 
-JavvierG here, I like javascript, I dont know much about javascript but i want to learn :)
+JavvierG here, I like javascript, I dont know much about javascript but i want to learn :) .
